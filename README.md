@@ -1,1 +1,1 @@
-详细解说地址：http://www.qiuzhipeng.com/articles/page/1
+详细解说地址：http://www.qiuzhipeng.com/article/1569933053448
